@@ -1,1 +1,0 @@
-#stop, give me your mora hrrrrrrr
